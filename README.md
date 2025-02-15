@@ -6,8 +6,4 @@
 ### okieeee sad life 
 # lmao
 # ho ho
-## 9
-# 10
-# 11
-# twelfth
-# thirteen
+# nine
