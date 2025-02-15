@@ -1,6 +1,6 @@
-# rabkkabanda is a hunch user. 
+pu# rabkkabanda is a hunch user. 
 ### he is my baby
 ## its me 
 # yupp
 # hehe 
-### okieeee sed life
+### okieeee sad life 
