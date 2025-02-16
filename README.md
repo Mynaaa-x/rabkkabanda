@@ -5,6 +5,8 @@
 # hehe 
 ### okieeee sad life 
 # lmao
+# Q for Quite
+# ctrl + c
 # ho ho
 # nine
 # 10
