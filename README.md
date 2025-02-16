@@ -7,3 +7,11 @@
 # lmao
 # Q for Quite
 # ctrl + c
+# ho ho
+# nine
+# 10
+# 11
+# twelfth
+# thirteen
+# 14
+# 15
