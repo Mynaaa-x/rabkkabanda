@@ -6,3 +6,4 @@
 ### okieeee sad life 
 # lmao
 # Q for Quite
+# ctrl + c
